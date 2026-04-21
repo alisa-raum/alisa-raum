@@ -9,7 +9,7 @@ approached through data analysis and fieldwork.
 
 - BA Architecture
 - MA Urban Development, HSE Moscow
-- MA Sociology with Distinction, University of Manchester
+- MA Sociology with Merit, University of Manchester
 
 ## Experience
 
